@@ -1,4 +1,4 @@
 # tusk1
 This side Ganesh joshi
 i am joshi
->>>>>>> joshi ji
+i am the king of future.
